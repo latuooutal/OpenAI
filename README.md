@@ -28,7 +28,7 @@ OpenAI 官网介绍称，GPT-4o 最快可以在 232 毫秒的时间内响应音�
 
 用户只需发出简单的“嘿，ChatGPT”语音提示，即可获得代理的口语回应。然后，用户可以用口语提交查询，并在必要时附上文字、音频或视觉效果——后者可包括照片、手机摄像头的实时画面或代理能“看到”的任何其他内容。
 
-[2024年快速升级ChatGPTPLSU方法，开卡即可升级，支持微信支付宝](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
+[2025年快速升级ChatGPTPLSU方法，开卡即可升级，支持微信支付宝](https://bit.ly/bewildcard)
 
 ### 能力三：在推理及音频翻译方面树立新标杆
 
@@ -51,6 +51,6 @@ OpenAI 官网介绍称，GPT-4o 最快可以在 232 毫秒的时间内响应音�
 
 目前，GPT-4o 的文本和图像功能开始在 ChatGPT 中免费推出，Plus 用户可以享受到 5 倍的调用额度。在接下来的几周内，OpenAI 将在 ChatGPT Plus 中推出 Voice Mode 新版本，该版本带有 GPT-4o。
 
-[2024年快速升级ChatGPTPLSU方法，开卡即可升级，支持微信支付宝](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
+[2025年快速升级ChatGPTPLSU方法，开卡即可升级，支持微信支付宝](https://bit.ly/bewildcard)
 
 
